@@ -1,16 +1,13 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=kmshirorui&label=ㅤㅤgive‎ㅤmeㅤtheㅤspyglass.ㅤㅤ&color=bb95ed)
 
-<!--
-**lethaldevotion/lethaldevotion** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                                  ...Before you hurt yourself.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center">
+  <img src="https://file.garden/ZxmyEiQL6hzek0ih/Untitled1351_20260613001350.png" alt="kmshirorui"/>
+</p>
+
+<p align=center> ㅤ <a href=https://curtainc4ll.atabook.org/>ATABOOK</a> ㅤ <a href=https://kmshirorui.straw.page>STRAWPAGE</a> ㅤ <a href=https://listography.com/unstable>LISTOGRAPHY</a>ㅤ  </p>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jdoposrulfzj3jkhvldnkg33lq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=d59ad0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
