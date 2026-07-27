@@ -6,7 +6,7 @@
 <img src="https://file.garden/ZxmyEiQL6hzek0ih/wifiesblehbgb" width="300"/>
 </p>
 
-                  ...Do words I say even mean anything?
+                  ...Do words I sing even mean anything?
 
 <p align=center>‎ . ಄ㅤㅤ ${\textsf{\color{#c28adb} fies}}$ ㅤ‎ㅤ ${\textsf{\color{#a8abe3} rui}}$ㅤ‎ㅤ ${\textsf{\color{#db8ace} riel}}$ </p>
 <p align=center> ${\textsf{\color{#d7c8e8} intㅤ ㅤc+hㅤ ㅤenc ㅤ ㅤᶻz﹒}}$ </p>
