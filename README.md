@@ -6,7 +6,7 @@
 <img src="https://file.garden/ZxmyEiQL6hzek0ih/wifiesblehbgb" width="300"/>
 </p>
 
-                        ...Do words I say even mean anything?
+                 ...Do words I say even mean anything?
 
 <p align=center> ㅤ <a href=https://curtainc4ll.atabook.org/>ATABOOK</a> ㅤ <a href=https://kmshirorui.straw.page>STRAWPAGE</a> ㅤ <a href=https://listography.com/unstable>LISTOGRAPHY</a>ㅤ  </p>
 
