@@ -12,7 +12,6 @@
 <p align=center> ${\textsf{\color{#d7c8e8} intㅤㅤc+hㅤㅤenc ㅤㅤᶻz﹒}}$ </p>
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="350"/> </p>
 <p align=center> ㅤ <a href=https://curtainc4ll.atabook.org/>ATABOOK</a> ㅤ !my strawpage is outdated! ㅤ <a href=https://listography.com/unstable>LISTOGRAPHY</a>ㅤ  </p>
-<p align=center> !! dni boundary breakers !! </p>
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="350"/> </p>
 
 <p>
