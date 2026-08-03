@@ -18,4 +18,6 @@ my fav bunny : <a href=https://github.com/byymyownn>@byymyownn</a>
 </p>
 schizohorse : <a href=https://github.com/VilLeynn>@VilLeynn</a> <a href=https://github.com/BackstageAlchemist>@BackstageAlchemist</a> <a href=https://github.com/puppyfes>@puppyfes</a> <a href=https://github.com/WhispyVibez>@WhispyVibez</a> <a href=https://github.com/Emu0312>@Emu0312</a>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jdoposrulfzj3jkhvldnkg33lq&cover_image=true&theme=novatorem&show_offline=true&background_color=5f2e66&interchange=true&profanity=false&hide_remaster=false&bar_color=b98bc6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jdoposrulfzj3jkhvldnkg33lq&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=aa7fcc&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
