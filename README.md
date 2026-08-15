@@ -16,6 +16,6 @@
 <p>
 my fav bunny : <a href=https://github.com/byymyownn>@byymyownn</a>
 </p>
-schizohorse : <a href=https://github.com/VilLeynn>@VilLeynn</a> <a href=https://github.com/BackstageAlchemist>@BackstageAlchemist</a> <a href=https://github.com/puppyfes>@puppyfes</a> <a href=https://github.com/WhispyVibez>@WhispyVibez</a> <a href=https://github.com/Emu0312>@Emu0312</a>
+the chunguses : <a href=https://github.com/VilLeynn>@VilLeynn</a> <a href=https://github.com/BackstageAlchemist>@BackstageAlchemist</a> <a href=https://github.com/puppyfes>@puppyfes</a> <a href=https://github.com/WhispyVibez>@WhispyVibez</a> <a href=https://github.com/Emu0312>@Emu0312</a>
 
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
